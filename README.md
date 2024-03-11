@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Reymond77
+500 $$reais de graça ta esperando o que- 👋 Hi, I’m @Reymond77
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
@@ -6,7 +6,8 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!---
+<!---777
 Reymond77/Reymond77 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+77--->@lwpqxxx
+777
